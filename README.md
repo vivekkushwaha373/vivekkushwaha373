@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **vivekkushwaha734@gmail.com**
 
-- 📄 Resume [https://shorturl.at/dotL7](https://shorturl.at/dotL7)
+- 📄 Resume [ https://surl.li/zqcoop](https://surl.li/zqcoop)
 
 - ⚡ Fun fact **Funny: ¯\_(ツ)_/¯ Code works… until it doesn’t.**
   
