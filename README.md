@@ -7,7 +7,10 @@
 
 - 📄 Resume [ https://surl.li/zqcoop](https://surl.li/zqcoop)
 
+- 📝 Important Notes  [download](https://github.com/vivekkushwaha373/Notes)
+
 - ⚡ Fun fact **Funny: ¯\_(ツ)_/¯ Code works… until it doesn’t.**
+
   
 <h2 align="left">Featured Projects:</h1>
 
