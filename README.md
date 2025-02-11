@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **vivekkushwaha734@gmail.com**
 
-- 📄 Resume [ https://surl.li/zqcoop](https://surl.li/zqcoop)
+- 📄 Resume [https://gold-justina-36.tiiny.site](https://gold-justina-36.tiiny.site)
 
 - 📝 Important Notes  [download](https://github.com/vivekkushwaha373/Notes)
 
