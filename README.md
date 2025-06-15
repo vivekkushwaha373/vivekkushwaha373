@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **vivekkushwaha734@gmail.com**
 
-- 📄 Resume [https://gold-justina-36.tiiny.site](https://drive.google.com/file/d/1-UnE0HiSc-DlySjGj5TCto2_4VptFhQK/view?usp=sharing](https://drive.google.com/file/d/14zcZnveutRBBKq6CYspKNZKv0CD3XMRI/view?usp=sharing)
+- 📄 Resume [https://gold-justina-36.tiiny.site](https://drive.google.com/file/d/14zcZnveutRBBKq6CYspKNZKv0CD3XMRI/view?usp=sharing)
 
 - 📝 Important Notes  [download](https://github.com/vivekkushwaha373/Notes)
 
